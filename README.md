@@ -1,1 +1,0 @@
-# Ptacticum-task2
